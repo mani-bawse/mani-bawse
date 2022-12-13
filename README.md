@@ -5,7 +5,8 @@
 ```
 Ik Jeep Khadi Meri Thane De Vich
 Badle Di Main Do Laina
-Ni Main Daku
+
+Ni Main DAAAKU
 
 Ni Main Daku Ik Number Da Haan
 Jehdi Cheez Te Ankh Oh Kho Laina
